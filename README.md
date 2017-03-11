@@ -1,0 +1,2 @@
+# Legend
+New Strat
